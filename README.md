@@ -30,7 +30,7 @@ Due to GitHub's file size limits (100MB), the full dataset is hosted on high-spe
 ### 🔓 Get Instant Access
 To prevent bot abuse, access to the full repository is gated.
 
-**[👉 Click Here to Get the Access Key (Instant WhatsApp)](YOUR_WHATSAPP_LINK_HERE)**
+**[👉 Click Here to Get the Access Key (Instant WhatsApp)](https://superprofile.bio/vp/69507cd3e583be00130ac384)**
 
 *Price: ₹159 ($2 USD) for Lifetime Access & Updates.*
 
